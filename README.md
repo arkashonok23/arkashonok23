@@ -2,7 +2,7 @@
 - 👀 I’m interested in artificial intelligence
 - 🌱 I’m currently learning in the School
 - 💞️ I’m looking to collaborate with more experienced people
-- 📫 How to reach me ...
+- 📫 How to reach me my telegham username @goodboy_we
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i live in the Russia
 
